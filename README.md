@@ -17,9 +17,9 @@
 
 - 📫 How to reach me **kaplanziyaberk@gmail.com**
 
-- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1TPwKhD-DeCvPwOiDVYVQ8J21o0a5yABY/view?usp=sharing)
+- 📄 Know about my experiences [**My CV**](https://drive.google.com/file/d/1TPwKhD-DeCvPwOiDVYVQ8J21o0a5yABY/view?usp=sharing)
 
-- ⚡ Fun fact **I like anime**
+- ⚡ Fun fact **I like manga**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
